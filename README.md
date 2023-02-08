@@ -1,5 +1,5 @@
 # Gabes-sites
-https://sites.google.com/gabes-mathteaching
+https://sites.google.com/view/gabes-mathteaching
 https://google.com
 https://bing.com
 https://stars.gq/
