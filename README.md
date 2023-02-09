@@ -47,9 +47,5 @@ https://www.typeracer.gq/
 https://www.quizlet.gq/
 https://flipgrid.cf/
 https://r.pluralsight.gq/
-https://r.codewars.ml/
-https://www.coursera.cf/
-https://cloudflare.rammerhead.org/
-https://r.studyschooltoday.eu.org/
 mealvariation.org (INCOG)
 calculustips.xyz (INCOG)
