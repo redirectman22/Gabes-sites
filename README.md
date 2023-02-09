@@ -51,3 +51,5 @@ https://r.codewars.ml/
 https://www.coursera.cf/
 https://cloudflare.rammerhead.org/
 https://r.studyschooltoday.eu.org/
+mealvariation.org (INCOG)
+calculustips.xyz (INCOG)
