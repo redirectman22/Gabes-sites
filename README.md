@@ -47,5 +47,5 @@ https://www.typeracer.gq/
 https://www.quizlet.gq/
 https://flipgrid.cf/
 https://r.pluralsight.gq/
-mealvariation.org (INCOG)
-calculustips.xyz (INCOG)
+https://mealvariation.org (INCOG)
+https://calculustips.xyz (INCOG)
