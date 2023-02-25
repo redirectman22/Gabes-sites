@@ -67,3 +67,8 @@ https://www.typeracer.ml/
 https://play.typeracer.gq/ 
 https://play.typeracer.ga/ 
 https://play.typeracer.ml/ 
+https://metallicdev.gq/
+https://metallic.gq/
+https://geoquiz.gq/
+https://schoolbreak.ga/
+https://birdfood.gq/ 
