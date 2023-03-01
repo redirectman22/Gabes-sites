@@ -73,3 +73,10 @@ https://geoquiz.gq/
 https://schoolbreak.ga/
 https://birdfood.gq/ 
 https://cellscience.top/ (most likely blocked)
+https://sportmebox.com/apps/
+https://mathclass.ballbang.wiki/
+https://mathclass.ballbang.xyz/
+https://ballbang.motox3m.info
+https://ballbang.madalin-stunt-cars-3.com
+https://mathclass.unblocked-games.lol/
+https://sportmebox.com/apps/
