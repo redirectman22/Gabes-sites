@@ -80,3 +80,9 @@ https://ballbang.motox3m.info
 https://ballbang.madalin-stunt-cars-3.com
 https://mathclass.unblocked-games.lol/
 https://sportmebox.com/apps/
+some links made by me
+https://gabes-science-and-math-helper.glitch.me/
+https://u-46mathhelperorginazation.glitch.me/
+https://im-a-active-shooter.glitch.me/
+https://noredink-sucks-monkey-butt.glitch.me/
+https://u-46-blocked-canvas-but-not-this.glitch.me/
