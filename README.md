@@ -2,11 +2,6 @@
 https://sites.google.com/view/gabes-mathhelper
 https://google.com
 https://bing.com
-https://mercury-mini-cylinder.glitch.me/
-https://science-personification.glitch.me/
-https://1900-civil-war-oxymoron.glitch.me/
-https://incognito-production-1e7c.up.railway.app/
-https://lydian-peppermint-viscount.glitch.me/
 https://lightlinks.vercel.app/
 https://nebula.subwavenetwork.com/
 https://dreams.software/
@@ -80,9 +75,16 @@ https://ballbang.motox3m.info
 https://ballbang.madalin-stunt-cars-3.com
 https://mathclass.unblocked-games.lol/
 https://sportmebox.com/apps/
+
+
 some links made by me
 https://gabes-science-and-math-helper.glitch.me/
 https://u-46mathhelperorginazation.glitch.me/
 https://im-a-active-shooter.glitch.me/
 https://noredink-sucks-monkey-butt.glitch.me/
 https://u-46-blocked-canvas-but-not-this.glitch.me/
+https://mercury-mini-cylinder.glitch.me/
+https://science-personification.glitch.me/
+https://1900-civil-war-oxymoron.glitch.me/
+https://incognito-production-1e7c.up.railway.app/
+https://lydian-peppermint-viscount.glitch.me/
